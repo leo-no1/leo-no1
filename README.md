@@ -13,7 +13,7 @@
   📫 though https://www.linkedin.com/in/swapnil-sengupta-b7209a203?utm_source=share_via&utm_content=profile&utm_medium=member_android
 
  ## A bit about me-
-    - 🍵honestly both coffee and tea both work for me
+    - 🍵honestly coffee and tea both work for me
     - 🥱Coffee has zero effect on me
     - ✏️spend me free time sketching
     - Hobbies : Gym, Anime, Sketching, Building things that are simple, useful and easy to understand
