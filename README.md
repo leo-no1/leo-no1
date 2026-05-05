@@ -3,7 +3,7 @@
 <!--
 **leo-no1/leo-no1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+
 
 - I like building systems that scale and don’t break under pressure.😉
 
